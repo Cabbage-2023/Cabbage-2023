@@ -16,7 +16,7 @@
 
 💻 Current State: A struggling frontend dev who can’t survive without AI... currently grinding and growing every day.
 
-✨ The Dream: Aspiring to become a "Onee-san" (Big Sister) who can write clean code, shred on an electric guitar, and cook amazing food.
+✨ The Dream: Aspiring to become a femboy "Onee-san" (Big Sister) who can write clean code, shred on an electric guitar, and cook amazing food.
 
 (P.S. This bio was translated by AI; please excuse any awkward phrasing!)
 
